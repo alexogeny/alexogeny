@@ -2,7 +2,7 @@
 
 - 🔭 I'm working on HRIS as a service.
 - 🌱 Trying to figure out the next thing to learn, actually. Any suggestions?
-- 👯 Let's the world a better place through software.
+- 👯 Let's make the world a better place through software.
 - 🌻 If it isn't renewable, it isn't worth building.
 - 🌼 Refuse to work for any gambling, crypto, or banks.
 - 🦄 They / them / theirs
