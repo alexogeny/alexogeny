@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I'm working on HRIS as a service.
+- 🔭 I'm working on EV software
 - 🌱 Trying to figure out the next thing to learn, actually. Any suggestions?
 - 👯 Let's make the world a better place through software.
 - 🌻 If it isn't renewable, it isn't worth building.
