@@ -1,12 +1,15 @@
-### Hi there 👋
+working on ev software because saving the planet one line of code at a time is sooo 2022.
 
-- 🔭 I'm working on EV software
-- 🌱 Trying to figure out the next thing to learn, actually. Any suggestions?
-- 👯 Let's make the world a better place through software.
-- 🌻 If it isn't renewable, it isn't worth building.
-- 🌼 Refuse to work in gambling. Might work in crypto, or banks.
-- 🦄 They / them / theirs
-- ⚡ Check out my desktop wallpaper:
+writing python and javascript, because why pick a side in the never-ending language wars?
 
-![wallpaper link](https://user-images.githubusercontent.com/6896115/171088438-be715abb-3292-4189-80ba-4beba0583e98.jpg)
+lifelong learner here, cause who needs to know it all?
 
+tinkering with stuff, but don't ask me to fix your printer. that's a hard pass.
+
+if my life was a tv show, it would be a crossover between black mirror and the office.
+
+gaming like it's my job. spoiler: it's not.
+
+desktop wallpaper so cool, it should be in the met gala.
+
+caffeine and hops connoisseur. or, you know, just a fancy way to say coffee and beer addict.
